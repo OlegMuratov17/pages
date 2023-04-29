@@ -2,7 +2,7 @@
 ## **Обо мне:**
 ## **Горбунько Семен Семенович**
 
-![Текст с описанием картинки](https://www.nsktv.ru/upload/medialibrary/3d1/l9k38quxkd8ng3026koz0qwsdwhszf2a.jpg)
+![](https://www.nsktv.ru/upload/medialibrary/3d1/l9k38quxkd8ng3026koz0qwsdwhszf2a.jpg)
 
 
 
